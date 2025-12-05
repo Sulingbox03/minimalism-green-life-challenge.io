@@ -1,0 +1,1 @@
+# minimalism-green-life-challenge.io
